@@ -99,6 +99,9 @@ GRUPOS EXCLUSIVOS DE COMPRA Y VENTA DE DIVISAS
 
 [https://t.me/criptonuevitas](https://t.me/criptonuevitas)
 
+[https://t.me/cripto_intercambio](https://t.me/cripto_intercambio)
+
+[https://t.me/ventaCryptosCuba](https://t.me/ventaCryptosCuba)
 
 
 GRUPOS GENERALES DE COMPRA Y VENTA DONDE TAMBIÉN SE ANUNCIAN DIVISAS
