@@ -103,6 +103,11 @@ GRUPOS EXCLUSIVOS DE COMPRA Y VENTA DE DIVISAS
 
 [https://t.me/ventaCryptosCuba](https://t.me/ventaCryptosCuba)
 
+[https://t.me/Divisas_Criptomonedas_Cuba](https://t.me/Divisas_Criptomonedas_Cuba)
+
+[https://t.me/Oriente_Intercambio_CriptosYmas](https://t.me/Oriente_Intercambio_CriptosYmas)
+
+
 
 GRUPOS GENERALES DE COMPRA Y VENTA DONDE TAMBIÉN SE ANUNCIAN DIVISAS
 -----
