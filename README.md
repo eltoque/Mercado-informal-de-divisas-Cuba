@@ -10,12 +10,14 @@ SITIOS DE CLASIFICADOS
 
 [https://www.timbirichi.com/](https://www.timbirichi.com/)
 
+
 > Los sitios de clasificados se analizan mediante la API de [https://callemonte.com](callemonte.com).
 
 
 
 GRUPOS EXCLUSIVOS DE COMPRA Y VENTA DE DIVISAS
 -----
+[https://t.me/Qbitaexchange](https://t.me/Qbitaexchange)
 
 [https://t.me/compra_venta_usd_mlc](https://t.me/compra_venta_usd_mlc)
 
@@ -335,6 +337,18 @@ GRUPOS GENERALES DE COMPRA Y VENTA DONDE TAMBIÉN SE ANUNCIAN DIVISAS
 
 GRUPOS DE WHATSAPP
 ----
+
+[https://chat.whatsapp.com/JxiH8D3vcKKHJ6bXkkrKZn](USD;EUROS Y MAS)
+
+[https://chat.whatsapp.com/Fol14fRn7078T9BuUcwHlY](EURO Y USD MERCADO)
+
+[https://chat.whatsapp.com/I30vYx5z9yEEKWMqY0Fcr8](MLC_USD)
+
+[https://chat.whatsapp.com/J65qvEsS7DE82xB9UjBxSB](Compra Y Venta MLC)
+
+[https://chat.whatsapp.com/EgPGDQ3iE7sIgW5QOjXdln](RED DE MERCADEO ONLINE)
+
+[https://chat.whatsapp.com/Ltr4N5xBtgvJ66PzLpeHKX](MLC USD EURO.)
 
 
 GRUPOS DE FACEBOOK
