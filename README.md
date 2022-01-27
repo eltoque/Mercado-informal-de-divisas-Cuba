@@ -338,17 +338,17 @@ GRUPOS GENERALES DE COMPRA Y VENTA DONDE TAMBIÉN SE ANUNCIAN DIVISAS
 GRUPOS DE WHATSAPP
 ----
 
-[https://chat.whatsapp.com/JxiH8D3vcKKHJ6bXkkrKZn](USD;EUROS Y MAS)
+[USD;EUROS Y MAS](https://chat.whatsapp.com/JxiH8D3vcKKHJ6bXkkrKZn)
 
-[https://chat.whatsapp.com/Fol14fRn7078T9BuUcwHlY](EURO Y USD MERCADO)
+[EURO Y USD MERCADO](https://chat.whatsapp.com/Fol14fRn7078T9BuUcwHlY)
 
-[https://chat.whatsapp.com/I30vYx5z9yEEKWMqY0Fcr8](MLC_USD)
+[MLC_USD](https://chat.whatsapp.com/I30vYx5z9yEEKWMqY0Fcr8)
 
-[https://chat.whatsapp.com/J65qvEsS7DE82xB9UjBxSB](Compra Y Venta MLC)
+[Compra Y Venta MLC](https://chat.whatsapp.com/J65qvEsS7DE82xB9UjBxSB)
 
-[https://chat.whatsapp.com/EgPGDQ3iE7sIgW5QOjXdln](RED DE MERCADEO ONLINE)
+[RED DE MERCADEO ONLINE](https://chat.whatsapp.com/EgPGDQ3iE7sIgW5QOjXdln)
 
-[https://chat.whatsapp.com/Ltr4N5xBtgvJ66PzLpeHKX](MLC USD EURO.)
+[MLC USD EURO.](https://chat.whatsapp.com/Ltr4N5xBtgvJ66PzLpeHKX)
 
 
 GRUPOS DE FACEBOOK
